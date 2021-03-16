@@ -1,0 +1,4 @@
+- 👋 Hi, I’m nate
+- 👀 I’m interested in biology, software and the lines between the two
+- 🌱 I’m currently learning: everything
+- 📫 How to reach me nateschr@gmail.com
